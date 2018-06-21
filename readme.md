@@ -1,0 +1,1 @@
+https://ball-project.github.io/doc/1.4/d5/d1e/classBALL_1_1StructureMapper.html#a0e95212df960fa493c044579d9d64487
